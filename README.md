@@ -49,5 +49,5 @@ Others exciting activities: lunch-together time, Monthly Party, Team Building,..
 # == Contact ==
 - M.s Nguyen Thi Thu Ha - HR Recruiter
 - Directly update your latest CV to ha.nguyen@tech.reapra.sg or hr@tech.reapra.sg
-or for further detail, you can reach me via +84 934 390 295 or Skype: ha.nguyen_89
+or for further detail, you can reach me via +84 908 91 41 51 or Skype: ha.nguyen_89
 - Website: http://tech.reapra.sg/
